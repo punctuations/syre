@@ -6,7 +6,7 @@
 SYRE SYRE SYRE SYRE 
 <br>
 
-credit goes to [@venoras](https://github.com/venoras) for the actual page, also 10/10, great guy :)
+credit goes to [@ven](https://github.com/ven) for the actual page, also 10/10, great guy :)
 
 <hr>
 
